@@ -1,1 +1,1 @@
-***Repositório de Imagens para utilizar no Website
+Repositório de Imagens para utilizar no Website
